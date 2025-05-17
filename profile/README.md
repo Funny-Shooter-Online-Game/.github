@@ -1,6 +1,6 @@
 ## 🔫 Funny Shooter Unblocked – The Ultimate 3D Shooting Madness!
 
-**Funny Shooter ** is an *insanely addictive* **first-person shooter (FPS)** that throws you into a *chaotic, cartoon-style battlefield* where waves of goofy enemies come at you from all directions. Whether you’re a casual player or a hardcore FPS fan, this game delivers a **crazy mix of action, humor, and non-stop blasting**!
+**Funny Shooter** is an *insanely addictive* **first-person shooter (FPS)** that throws you into a *chaotic, cartoon-style battlefield* where waves of goofy enemies come at you from all directions. Whether you’re a casual player or a hardcore FPS fan, this game delivers a **crazy mix of action, humor, and non-stop blasting**!
 
 ### 🎮 What is Funny Shooter?
 
