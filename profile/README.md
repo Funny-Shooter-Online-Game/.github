@@ -2,6 +2,8 @@
 
 **Funny Shooter** is an *insanely addictive* **first-person shooter (FPS)** that throws you into a *chaotic, cartoon-style battlefield* where waves of goofy enemies come at you from all directions. Whether you’re a casual player or a hardcore FPS fan, this game delivers a **crazy mix of action, humor, and non-stop blasting**!
 
+## <a href="https://1kb.link/CXExf9">👉 Play Funny Shooter Unblocked Games NOW 👈</a>
+
 ### 🎮 What is Funny Shooter?
 
 Funny Shooter is the **epic sequel** to the viral shooting hit, where **comedy meets chaos**. Armed with a massive arsenal—from pistols to rocket launchers—you must **blast, shoot, and explode** everything in sight while dodging ridiculous enemies like toilet-headed monsters, aliens, and rubbery red men. Think of it as a mix between **doom-style shooter** and **wacky cartoon combat**.
